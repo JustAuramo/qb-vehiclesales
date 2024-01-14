@@ -6,7 +6,7 @@ Autonmyynti QB Pohjalle OX_LIB hyödyntäen :blue_car:
 
 
 ## Kuvakaappaukset
-![image](https://i.imgur.com/vRtgeuy.jpeg)
+![image](https://i.imgur.com/bYQNc6P.jpeg)
 ![image](https://i.imgur.com/LJUFwVv.jpeg)
 ![image](https://i.imgur.com/ny3TgFn.jpeg)
 
